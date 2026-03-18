@@ -31,12 +31,12 @@ look. I was especially struck by that when I saw pictures
 taken of him in the Czechoslovakian crisis; there was in
 his eyes the look of a seer."
 
-I asked, "Why is it that Hitler who makes nearly every
-German fall down and worship him, produces next to no
+I asked, "Why is it that Hitler **who makes nearly every
+German fall down and worship him**, produces next to no
 impression on any foreigner?"
 
-"Exactly," Dr. Jung assented. "Few foreigners respond at
-all, yet apparently every German in Germany does. It is
+"Exactly," Dr. Jung assented. **"Few foreigners respond at
+all, yet apparently every German in Germany does.** It is
 because Hitler is the mirror of every German's unconscious,
 but of course he mirrors nothing from a non-German.
 "He is the loud-speaker which magnifies the inaudible
