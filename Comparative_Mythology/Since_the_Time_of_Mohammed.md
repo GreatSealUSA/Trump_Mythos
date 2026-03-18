@@ -5,3 +5,8 @@ Hearst's International Cosmopolitan
 January 1939    
 Cosmo   
 https://en.wikipedia.org/wiki/Cosmopolitan_(magazine)   
+
+&nbsp;
+
+<img width="650" height="890" alt="image" src="https://github.com/user-attachments/assets/7f361bef-dbe0-4b78-ab2a-ee5b456eedbb" />
+
