@@ -10,5 +10,9 @@ https://en.wikipedia.org/wiki/Cosmopolitan_(magazine)
 
 &nbsp;
 
+Interviews were in 1938?  https://CarlJungdepthPsychologysite.blog/2020/11/13/dictators/   
+
+&nbsp;
+
 <img width="650" height="890" alt="image" src="https://github.com/user-attachments/assets/7f361bef-dbe0-4b78-ab2a-ee5b456eedbb" />
 
