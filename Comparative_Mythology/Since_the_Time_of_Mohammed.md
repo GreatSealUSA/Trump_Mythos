@@ -24,9 +24,7 @@ world, he has so far been infallible.
 out to be right against the opinions of all his advisors and
 against the opinions of all foreign observers. When this
 happens it means only that the information gathered by his
-unconscious, and reaching his consciousness by means of his exceptional talent, has been more nearly correct. than
-that of all others, German or foreign, who attempted to judge the situation and who reached conclusions different
-from his."
+unconscious, and reaching his consciousness by means of his exceptional talent, has been more nearly correct than that of all others, German or foreign, who attempted to judge the situation and who reached conclusions different from his."
 
 I remarked that if Hitler's Voice continued to be always
 right, we were in for a very interesting period. This was
