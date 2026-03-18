@@ -68,7 +68,7 @@ symbolism sinister, unfavorable, directed toward the unconscious. All these symb
 vortices point to a mass movement which is to sweep the
 German people in a hurricane of unreasoning emotion on
 to a destiny which perhaps none but the seer, the prophet,
-the Fuehrer himself can foretell-and perhaps not even he."
+the Fuehrer himself can foretell - and perhaps not even he."
 
 This psychiatric explanation of the Nazi names and symbols may sound to a layman fantastic, but can anything be
 as fantastic as the bare facts about the Nazi Party and its
