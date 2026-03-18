@@ -63,9 +63,8 @@ Holy Ghost. "Again," Dr. Jung continued, "consider the
 widespread revival in the Third Reich of the cult of Wotan,
 God of Wind. Take the name Sturmabteilung, Storm
 Troops. The swastika is a revolving form making a vortex
-moving ever toward the left-which means in Buddhistic
-symbolism sinister, unfavorable, directed toward the unconscious. All these symbols of a Third Reich led by its
-prophet under the banners of wind and storm and whirling
+moving ever toward the left - which means in Buddhistic
+symbolism sinister, unfavorable, directed toward the unconscious. All these symbols of a Third Reich led by its prophet under the banners of wind and storm and whirling
 vortices point to a mass movement which is to sweep the
 German people in a hurricane of unreasoning emotion on
 to a destiny which perhaps none but the seer, the prophet,
