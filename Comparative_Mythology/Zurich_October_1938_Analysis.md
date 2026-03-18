@@ -25,7 +25,33 @@ types of strong men in primitive society. One was the chief
 who was physically powerful, stronger than all his competitors, and another was the medicine man who was not
 strong in himself but **was strong by reason of the power
 which the people projected into him**. Thus we had the
+Emperor and the Pope.
+"Hitler belongs in the category of the truly mystic medicine man. His body does not suggest strength. The outstanding characteristic of his physiognomy is its dreamy
+look. I was especially struck by that when I saw pictures
+taken of him in the Czechoslovakian crisis; there was in
+his eyes the look of a seer."
 
+I asked, "Why is it that Hitler who makes nearly every
+German fall down and worship him, produces next to no
+impression on any foreigner?"
+
+"Exactly," Dr. Jung assented. "Few foreigners respond at
+all, yet apparently every German in Germany does. It is
+because Hitler is the mirror of every German's unconscious,
+but of course he mirrors nothing from a non-German.
+"He is the loud-speaker which magnifies the inaudible
+whispers of the German soul until they can be heard by
+the German's conscious ear. He is the first man to tell
+every German what he has been thinking and feeling all
+along in his unconscious about German fate, especially
+since the defeat in the World War, and the one characteristic which colors every German soul is the typically
+
+
+&nbsp;
+
+NEW_OPERA_NAME #FallDownAndWorship    
+https://bsky.app/profile/greatsealusa.bsky.social/post/3mhduspaafc2g   
+https://autistics.life/@RoundSparrow/116251048044705000   
 
 ------------
 
