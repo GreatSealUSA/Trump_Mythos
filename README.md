@@ -2,6 +2,8 @@
 
 Trump Family Mythos. Mythology Trump.
 
+* "The myth is the public dream and the dream is the private myth. If your private myth, your dream, happens to coincide with that of the society, you are in good accord with your group. If it isn’t, you’ve got an adventure in the dark forest ahead of you." - 1988
+
 &nbsp;
 
 NEW_OPERA_NAME #TrumpMythos    
