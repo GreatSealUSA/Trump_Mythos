@@ -16,3 +16,11 @@ I'm gonna get this fire started (started)
 Impossible for you to breathe   
 The temperature is rising up, up"   
 
+&nbsp;
+
+# Trump Meme Dance   
+
+NEW_OPERA_NAME #TrumpMemeDance    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mho4u4zlq22e    
+https://autistics.life/@RoundSparrow/116274132356161662   
