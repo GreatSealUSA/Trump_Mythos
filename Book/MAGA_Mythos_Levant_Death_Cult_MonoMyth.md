@@ -21,3 +21,14 @@ Given the appetites he has built up among his supporters, it shouldn’t have sh
 
 The only consistent thread in these examples is a desire to see people they don’t like get hurt or killed.    
 
+&nbsp;
+
+&nbsp;
+
+# Surkov MonoMyth
+
+Context assertion
+
+Putin-Surkov Kremlin monomyth as described October 20, year 2011 (15 years ago): "Vol. 33 No. 20 · 20 October 2011. Putin’s Rasputin" by Peter Pomerantsev https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+Describes the self-harm death cult of Russia monomyth (based on Levant monomyth).
